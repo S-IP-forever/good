@@ -1,0 +1,2 @@
+# good
+everyone can join
